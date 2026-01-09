@@ -1,0 +1,2 @@
+# Crush_01
+LOVE IS WASTE OF TIME
