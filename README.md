@@ -1,2 +1,2 @@
 # Crush_01
-LOVE IS WASTE OF TIME
+Interesting  Html, Css and Js project
